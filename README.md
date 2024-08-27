@@ -1,0 +1,1 @@
+Lütfen kötü yorumlar atmayınız.
